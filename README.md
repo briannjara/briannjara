@@ -20,6 +20,8 @@ Fun fact <br>:i know nothing (⁠٥⁠↼⁠_⁠↼⁠)
 
 ---
 
+[![](https://visitcount.itsvg.in/api?id=briannjara&label=Profile%20Views&color=5&icon=0&pretty=true)](https://visitcount.itsvg.in)
+
 [![](https://visitcount.itsvg.in/api?id=briannjara&label=Profile%20Views&color=12&icon=0&pretty=true)](https://visitcount.itsvg.in)
 
   ## 💰 You can help me by Donating
