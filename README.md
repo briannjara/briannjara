@@ -2,7 +2,7 @@
 "Fun fact: I know nothing."  
 
 ## Socials
-[Instagram](https://instagram.com/njaram.ba) | [TikTok](https://tiktok.com/@njaramb.a) 
+[Instagram](https://instagram.com/njaram.ba) | [WhatsApp](https://wa.me/254723752098)
 
 ## Tech Stack
 - Python
